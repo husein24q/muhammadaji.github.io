@@ -25,5 +25,5 @@
 • Sulap kelas menjadi menyenangkan dengan Edutaiment
 
 ## Keterampilan
-• Mengajar • Pemecahan Masalah • Manajemen Kelas • Merancang Pembelajaran 
-• Microsoft Office Word dan Power Point • Komunikasi efektif
+• Mengajar • Pemecahan Masalah • Manajemen Kelas 
+• Merancang Pembelajaran • Microsoft Office Word dan Power Point • Komunikasi efektif
