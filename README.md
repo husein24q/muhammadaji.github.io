@@ -20,11 +20,11 @@
 - Mendorong dan membimbing siswa untuk meneladani jejak langkah Rasulullah SAW sebagai suri tauladan yang pertama dan utama.
 - Meningkatkan pemahaman siswa terhadap berbagai peristiwa dalam sejarah Islam dan menjadikan itu sebagai Ibrah dalam kehidupan sehari-hari
 
-### Sertifikat
+## Sertifikat
 - Merancang Pembelajaran Blended Learning untuk Guru, Program Prakerja diselenggarakan oleh karier.mu
 - Sulap kelas menjadi menyenangkan dengan Edutaiment
 
-### Keterampilan
+## Keterampilan
 - Mengajar
 - Pemecahan Masalah
 - Manajemen Kelas
