@@ -1,4 +1,4 @@
-# _Curriculum Vitae_
+# Curriculum Vitae
 
 ## Pendidikan
 - Pendidikan Agama Islam, 2022. Universitas Islam Negeri Raden Fatah Palembang.
